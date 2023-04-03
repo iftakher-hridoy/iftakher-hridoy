@@ -2,8 +2,7 @@
 
 ### Hi there 👋, I'm iFTAKHER_HRiDOY
 #### “SUCCESS” is depends on 2nd letter. ...😎😎. Who am I? I have not found the answer yet. 
-![“SUCCESS” is depends on 2nd letter. ...😎😎. Who am I? I have not found the answer yet. ](https://pbs.twimg.com/profile_banners/1343998651085987840/1649126801/600x200)
-
+![“SUCCESS” is depends on 2nd letter. ...😎😎. Who am I? I have not found the answer yet. ]
 🧑‍💻𝗪𝗼𝗿𝗸+👨‍🎓𝗦𝘁𝘂𝗱𝘆+𝗣𝗿𝗮𝘆𝗲𝗿+𝗦𝗹𝗲𝗲𝗽 😴= 𝗦𝘂𝗰𝗰𝗲𝘀𝘀. (𝗶𝗡𝗦𝗛𝗔𝗟𝗟𝗔𝗛)
 
 Skills: HTML / CSS
